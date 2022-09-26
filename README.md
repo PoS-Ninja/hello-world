@@ -2,5 +2,5 @@
 Just another repository
 Hi, Everybodys!
 
-CryptoMiner here, I like CryptoCurrency and Trading tech(that's what I'm made of!).
+PosNinja is here, I like CryptoCurrency and Trading tech(that's what I'm made of!).
 I've had tacos on the moon and find them far superior to Earth tacos.
